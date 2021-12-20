@@ -10,4 +10,5 @@
 По всем возникшим ошибкам/багам обращаться по ссылкам ниже.
 
 Vk: https://vk.com/andr3n
+
 Telegram: https://t.me/andr3n
